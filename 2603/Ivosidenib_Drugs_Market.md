@@ -10,7 +10,7 @@
  
  
  
- <div><b>Download FREE Sample of this Report @ <a href="https://www.statsmarketresearch.com/download-free-sample/8033826/global-ivosidenib-drugs-forecast-2025-2032-71">https://www.statsmarketresearch.com/report-sample/8033826/global-ivosidenib-drugs-forecast-2025-2032-71</a></b></div>
+ <div><b>Download FREE Sample of this Report @ <a href="https://www.statsmarketresearch.com/download-free-sample/8033825/global-ivosidenib-drugs-forecast-2025-2032-39">https://www.statsmarketresearch.com/report-sample/8033825/global-ivosidenib-drugs-forecast-2025-2032-39</a></b></div>
  
  
  
@@ -26,7 +26,7 @@
  
  
  
- <p><a href="https://www.statsmarketresearch.com/download-free-sample/8033826/global-ivosidenib-drugs-forecast-2025-2032-71">Download Report Sample Link</a></p>
+ <p><a href="https://www.statsmarketresearch.com/download-free-sample/8033825/global-ivosidenib-drugs-forecast-2025-2032-39">Download Report Sample Link</a></p>
  
  
  
@@ -266,7 +266,7 @@
  
  
  
- <div><b>Get the Complete Report & TOC @ <a href="https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-71-8033826">https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-71-8033826</a></b></div>
+ <div><b>Get the Complete Report & TOC @ <a href="https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-39-8033825">https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-39-8033825</a></b></div>
  
  
  
@@ -342,7 +342,7 @@
  
  
  
- <div><b>Get the Complete Report & TOC @ <a href="https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-71-8033826">https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-71-8033826</a></b></div>
+ <div><b>Get the Complete Report & TOC @ <a href="https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-39-8033825">https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-39-8033825</a></b></div>
  
  
  
@@ -366,7 +366,7 @@
  
  <br />
  
- <a href="https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-39-8033825">Ivosidenib Drugs Market, Global Outlook and Forecast 2025-2032</a><br />
+ <a href="https://www.statsmarketresearch.com/global-ivosidenib-drugs-forecast-2025-2032-71-8033826">Ivosidenib Drugs Market, Global Outlook and Forecast 2025-2032</a><br />
  
  <br />
  
